@@ -1,0 +1,1 @@
+Created this site as an initial mock up for a flooring company which my father has owned and operated since the early 1980's.  I've yet to complete the site, seeing that I need more input from my father's end in regards to pricing and certain services.  He lives out of town, so meeting up isn't always the easiest to manage.
